@@ -13,6 +13,6 @@ First Photo, left to right: Dr. Toja Okoh, Steven Guy, Katie Blanch, Anthony Loi
 
 Second Photo, left to right: Steven Guy, Dr. Okoh, Dr. Bunzli, Connoe Lynch, Katie Blanch, Anthony Loia, Abigail Gaughan.
 
-![Picture 2](assets/image/McCarold Eating.jpeg)
+![McCarold Eating(1)](https://github.com/user-attachments/assets/bf5713e8-5c17-461f-9ae5-14a00c6aa217)
 
 [Guitar information](https://www.gibson.com/en-US/)
