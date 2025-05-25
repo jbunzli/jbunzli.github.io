@@ -8,8 +8,8 @@ The Loyola Maryland DHSI Cohort meets up for Dinner
 The evening before the DHSI kick-off, Loyola's cohort shared a meal at Pub McCarold. We arrived early and were the restuarant's 1st clients of the day. A lively conversation about our excitement for the week of work accompanied a lovely meal.
 
 First Photo, left to right: Dr. Toja Okoh, Steven Guy, Katie Blanch, Anthony Loia, Dr. Jim Bunzli, Connor Lynch.
+![McCarold Waiting](https://github.com/user-attachments/assets/2707c6d4-ee3f-4a54-ad77-39cfb2e5094a)
 
-![Picture 1](assets/image/McCarold Waiting.jpeg)
 
 Second Photo, left to right: Steven Guy, Dr. Okoh, Dr. Bunzli, Connoe Lynch, Katie Blanch, Anthony Loia, Abigail Gaughan.
 
