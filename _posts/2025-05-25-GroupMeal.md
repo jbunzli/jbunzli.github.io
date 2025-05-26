@@ -15,4 +15,4 @@ Second Photo, left to right: Steven Guy, Dr. Okoh, Dr. Bunzli, Connoe Lynch, Kat
 
 ![McCarold Eating(1)](https://github.com/user-attachments/assets/bf5713e8-5c17-461f-9ae5-14a00c6aa217)
 
-[Pub McCarold, Montreal, QC](https://pubmccarold.com//en-US/)
+[Pub McCarold, Montreal, QC](https://pubmccarold.com//)
