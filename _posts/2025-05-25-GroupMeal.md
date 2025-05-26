@@ -15,4 +15,4 @@ Second Photo, left to right: Steven Guy, Dr. Okoh, Dr. Bunzli, Connoe Lynch, Kat
 
 ![McCarold Eating(1)](https://github.com/user-attachments/assets/bf5713e8-5c17-461f-9ae5-14a00c6aa217)
 
-[Guitar information](https://www.gibson.com/en-US/)
+[Guitar information](https://pubmccarold.com//en-US/)
