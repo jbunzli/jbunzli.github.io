@@ -9,6 +9,7 @@ FIRST DAY !! We began by attending the opeing lecture by the facsinating Ichiro 
 
 Photo, close to far: Dr. Bunzli, Abigail Gauhan, Connor Lynch, Steven
 
-! [Lecture Atendees] (assets/image/C17BB073-EA4D-496E-A71F-BA9E49E2A398_1_102_o.jpeg)
+! [Lecture Atendees] [IMG_0550](https://github.com/user-attachments/assets/b48c555b-7d5a-4d05-9048-802f60ec600b)
+8_1_102_o.jpeg)
 
 [Lecture Information](https://dhsi.org/events/institute-lectures/)
